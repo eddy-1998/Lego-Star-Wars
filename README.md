@@ -228,4 +228,4 @@ LEGO Star Wars is the full free version, providing access to all features and up
 Join the adventure and download LEGO Star Wars today for an unforgettable gaming experience!
 
 ---
-**Last updated:** 2026-10-05 22:25:50 UTC
+**Last updated:** 2026-10-06 02:48:33 UTC
